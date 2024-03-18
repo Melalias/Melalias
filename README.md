@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on cool stuff..
 - 📫 How to reach me annonoise@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I started at a telcom co as a "hardware tech" in 1995 when all the windows 3.1 harddrives
-- needed to be replaced for Windows 95 and TCPIP and I beat out the CS degreed folks because I had jokes!! The whole world learned it at the same time. #SiezeTheMoment #TrueStory 
+- ⚡ Fun fact: I started at a telcom co as a "hardware tech" in 1995 when all the windows 3.1 harddrives needed to be replaced for Windows 95 and TCPIP and I beat out the CS degreed folks because I had jokes!! The whole world learned it at the same time. #SiezeTheMoment #TrueStory 
   
 
 <!---
